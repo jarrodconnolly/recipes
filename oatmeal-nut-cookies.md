@@ -21,6 +21,7 @@
 * Toast nuts in the oven for 5 minutes
 * Chop into small pieces
 * Beat butter and sugar until fluffy
+* Mix the eggs into the butter/sugar mix
 * In a large bowl, mix flour, baking powder and salt
 * Add butter butter mixture to dry ingredients and combine
 * Slowly add oats, nuts, and berries to combine
